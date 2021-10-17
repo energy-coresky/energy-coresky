@@ -1,1 +1,1 @@
-### Hello world! I spend 15 years developing my coresky code. My dream is earnest fulltime work in team of 3-5 programmers on my SKY project. Project SKY is unusual. Welcome to collaboration if you white crow also or want support the project.
+### Hello world! I spend 15 years developing my coresky code. My dream is earnest fulltime work in team of 3-5 programmers on my SKY project. Project SKY is unusual. Welcome to collaboration if you want support the project.
