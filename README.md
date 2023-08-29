@@ -1,1 +1,1 @@
-### Hello world! I spend 15 years developing my CORESKY code. My dream is earnest fulltime work in team of 7-8 programmers on my SKY project. Welcome to collaboration if you want support the project.
+### Hello world! I spend 19 years developing my Coresky code. My dream is earnest fulltime work in team of 7-8 programmers on this project. Welcome to collaboration if you want support.
